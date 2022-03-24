@@ -1,3 +1,2 @@
-# rrenzdonn.github.io
-Riot Games
-made by: Renz Donn A. Carpo (renz)
+# rrenzzz.github.io
+**Riot Games**
