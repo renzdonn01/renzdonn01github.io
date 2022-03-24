@@ -1,2 +1,3 @@
 # rrenzdonn.github.io
-HOW TO PLAY MOBILE LEGENDS
+Riot Games
+made by: Renz Donn A. Carpo (renz)
