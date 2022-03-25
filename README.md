@@ -26,4 +26,4 @@ This website will showcase and exhibit my favorite bands and artists!
 
 
 Those are my most favorite bands and artists. I hope you have learned something. Thank you for coming and visting my website!
-Stay safe and spread love! <33
+**Stay safe and spread love! <33**
