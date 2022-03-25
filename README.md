@@ -1,6 +1,8 @@
 # GOOD DAY, EVERYONE!
-## Made by: Renz Donn A. Carpo (9-Gonzales B)
+Made by: Renz Donn A. Carpo (9-Gonzales B)
 
-In this website, I will show and exhibit you my favorite band and singers!
+This website will showcase and exhibit my favorite bands and singers!
+---
+# **[QUEEN](https://open.spotify.com/artist/1dfeR4HaWDbWqFHLkxsg1d)
 
 
